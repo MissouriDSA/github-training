@@ -1,3 +1,2 @@
 Pizza
-Pasta
-Blueberries
+Sushi
