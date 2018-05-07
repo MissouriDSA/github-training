@@ -1,0 +1,1 @@
+My favorite foods are italian pasta, my grandpa's steak, sweet potatoe fries, mint chocolate chip ice cream, white cake, any type of fruit, smoothies, and peanut butter. 
